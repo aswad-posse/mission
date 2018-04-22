@@ -1,2 +1,3 @@
 # mission
-tis a mad idea rasta.. 
+we dont run tingz rhingz run wee ;-)
+
